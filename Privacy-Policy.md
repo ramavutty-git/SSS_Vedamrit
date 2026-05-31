@@ -141,10 +141,9 @@ If you have questions regarding this Privacy Policy, please contact:
 
 **SSS Vedamrit Support**
 
-Email: [support@sssvedamrit.com](mailto:support@sssvedamrit.com)
+Email: [aarveetech.support@gmail.com](mailto:aarveetech.support@gmail.com)
 
-Website: https://www.sssvedamrit.com
 
 ## Consent
 
-By using SSS Vedamrit, you acknowledge that you have read and agree to this Privacy Policy.
+By using SSS Vedamrit app, you acknowledge that you have read and agree to this Privacy Policy.
